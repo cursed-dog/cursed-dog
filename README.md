@@ -13,6 +13,5 @@
 ![1ba01d55](https://github.com/cursed-dog/cursed-dog/assets/162375655/4a9103b7-f7e3-4f06-8d48-fbdc3ef6334e)
 ![6b3f218c](https://github.com/cursed-dog/cursed-dog/assets/162375655/a603b694-3c54-487e-acf3-82f6d39ee379)
 ![bfdb705b](https://github.com/cursed-dog/cursed-dog/assets/162375655/f9a62290-5e09-4e41-bc8f-298613f6e468)
-![IMG_3914](https://github.com/cursed-dog/cursed-dog/assets/162375655/464391d0-b03c-414d-be9c-7d85e15b0ae8)
-![tumblr_bebab04e71630fe1c5d5a750fa45ef83_8598b4af_100](https://github.com/cursed-dog/cursed-dog/assets/162375655/b19abd9b-2c16-47ca-88e1-366f547209e2)
+
 
